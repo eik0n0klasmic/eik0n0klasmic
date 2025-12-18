@@ -16,6 +16,11 @@
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery16/80ff0447.gif?v=72ce5086">
   <br/>
   <br/>
+<sub><b>ꜰʀᴇᴇᴅᴏᴍ ꜰᴏʀɢᴏɴᴇ, ꜱɪɴᴋɪɴɢ ᴀᴘᴀᴄᴇ</sub>
+  <br/>
+<sup>ᴄᴏᴍᴇᴛꜱ ᴄʀᴜᴍʙʟᴇ, ᴘʜᴏᴇʙᴜꜱ ꜰᴀᴅᴇꜱ</b></sup>
+  <br/>
+  <br/>
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery22/2e8d7cfb.png?v=72ce5086">
 <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery03/080d159a.png?v=bc5f8ecc">
 <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=bc5f8ecc">
