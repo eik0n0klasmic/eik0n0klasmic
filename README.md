@@ -27,7 +27,7 @@
   <br/>
 <img align="center" src="https://komarev.com/ghpvc/?username=eik0n0klasmic&color=00bd00&style=plastic&label=𖤐+🇫​​🇷​​🇪​​🇪​​🇩​+​🇧​​🇪​​🇦​​🇷​​🇪​​🇷​​🇸+𐕣​">
   <br/>
-<sub> <a href="https://2wo2ime.atabook.org">host atabook</a> ⠀♱⠀ <a href="https://eik0n0klasmic.carrd.co">MY carrd</a> ⠀♱⠀ <a href="https://xxhe4rtstringz.carrd.co/">our interests</a> </sub>
+<sub> <a href="https://2wo2ime.atabook.org">host atabook</a> ⠀♱⠀ <a href="https://eikonoklasmic.carrd.co">MY carrd</a> ⠀♱⠀ <a href="https://xxhe4rtstringz.carrd.co/">our interests</a> </sub>
   <br/>
 <sup> <a href="https://github.com/xxhe4rtstringz">host shithub</a> ⠀𖤐⠀ <a href="https://github.com/riisiingtiide">headm8 shithub</a> </sup>
   <br/>
