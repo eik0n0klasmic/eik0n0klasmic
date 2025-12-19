@@ -20,7 +20,7 @@
   <br/>
 <sup>ʟᴇᴛ ᴛʜᴇ ʟɪɢʜᴛ ɪɴ ᴀɴᴅ ʙʀɪɢʜᴛᴇɴ ᴛʜᴇ ꜱʜᴀᴅᴇꜱ ᴛʜᴀᴛ ꜱʟᴇᴇᴘ ɪɴꜱɪᴅᴇ ʏᴏᴜ!</b></sup>
   <br/>
-i <i>LOVE</i> to argue i'm the fierce shepherd of the rblx area
+i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
   <br/>
   <br/>
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery22/2e8d7cfb.png?v=72ce5086">
