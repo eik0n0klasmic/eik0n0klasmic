@@ -16,9 +16,9 @@
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery16/80ff0447.gif?v=72ce5086">
   <br/>
   <br/>
-<sub><b>ʏᴏᴜʀ ʙʟᴇᴀʀʏ, ʙʟᴏᴏᴅꜱʜᴏᴛ ᴇʏᴇꜱ ᴏᴘᴇɴ <i>ᴡɪᴅᴇ</i> ɪɴ ᴛʜᴇ ᴅᴀᴡɴ</sub>
+<sub><b>ᴛᴏɴɪɢʜᴛ, ᴡɪᴛɴᴇꜱꜱ ᴛʜᴇɴ ᴀꜱ ᴛʜᴇ ᴇɴᴅ ꜱʜᴀʟʟ ʙᴇɢɪɴ ᴡʜᴀᴛ ᴡᴀꜱ ꜰɪɴᴀʟ!</sub>
   <br/>
-<sup>ʟᴇᴛ ᴛʜᴇ ʟɪɢʜᴛ ɪɴ ᴀɴᴅ ʙʀɪɢʜᴛᴇɴ ᴛʜᴇ ꜱʜᴀᴅᴇꜱ ᴛʜᴀᴛ ꜱʟᴇᴇᴘ ɪɴꜱɪᴅᴇ ʏᴏᴜ!</b></sup>
+<sup>ᴛʜᴇɪʀ ʟɪᴇꜱ; ꜰᴏʟᴅɪɴɢ ʙᴀᴄᴋ, ꜰᴜʀᴛʜᴇʀ ʙᴀᴄᴋ, ᴇᴠᴇʀ ʙᴀᴄᴋ ᴛᴏ ᴛʜᴇ ᴘʀɪᴍᴀʟ!</b></sup>
   <br/>
   <br/>
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery22/2e8d7cfb.png?v=72ce5086">
