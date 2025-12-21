@@ -38,6 +38,9 @@ i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
 <img align="center" height="50" src="https://carcuvorous.carrd.co/assets/images/gallery18/1031eb3f.png?v=72ce5086">
   <br/>
   <br/>
+  <ins>if thou thinketh me corny just know i was <i>BORN</i> on the cob</ins>
+  <br/>
+  <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery20/e68a48dd.gif?v=72ce5086">
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery10/321b5042.gif?v=72ce5086">
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery20/e68a48dd.gif?v=72ce5086">
