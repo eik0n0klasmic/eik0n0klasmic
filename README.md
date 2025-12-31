@@ -32,7 +32,7 @@ i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
   <br/>
 <sub> <a href="https://2wo2ime.atabook.org">host atabook</a> ⠀♱⠀ <a href="https://eikonoklasmic.carrd.co">MY carrd</a> ⠀♱⠀ <a href="https://xxhe4rtstringz.carrd.co/">our interests</a> </sub>
   <br/>
-<sup> <a href="https://github.com/xxhe4rtstringz">host shithub</a> ⠀𖤐⠀ <a href="https://github.com/riisiingtiide">headm8 shithub</a> </sup>
+<sup> <a href="https://github.com/xxhe4rtstringz">host shithub</a> ⠀𖤐⠀ <a href="https://github.com/husofulvescens">headm8 shithub</a> </sup>
   <br/>
 <sup> <a href=https://www.youtube.com/watch?v=5MMKIrkVcOg>my username's origin</a>
   <br/>
